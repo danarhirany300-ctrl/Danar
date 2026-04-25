@@ -31,5 +31,5 @@
 ---
 
 ## 📫 Contact
-
-* GitHub: (https://www.facebook.com/share/19o2taQSM7/?mibextid=wwXIfr)
+*  Email: danarhirany775@gmail.com
+* GitHub: (https://github.com/danarhirany300-ctrl)
